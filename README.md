@@ -1,6 +1,6 @@
 ## Jordan T Smith
 
-#### Software Engineer at Mattersight
+#### Software Engineer at NICE Systems
 ---
 
 My portfolio: https://www.jordansmithdigital.com/ <br>
